@@ -9,4 +9,5 @@
 - 📫 Me contate em gustavo.evangelista.araujo@escola.pr.gov.br
 - ⚡ Qualquer coisa: Estou focado em academia
 
-![](https://tenor.com/pt-BR/view/man-standing-gif-20655812)
+
+![](https://media1.tenor.com/m/lSBXYvTZzP8AAAAd/man-standing.gif)
